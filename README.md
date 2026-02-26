@@ -1,0 +1,1 @@
+# Obsidian-excalidraw-life-in-weeks
